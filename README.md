@@ -71,7 +71,7 @@ We just need your targeted Keywords & URLs. We will write SEO Optimized Articles
 
 
 ## What kind of Topics/Niches do you accept? 
-We accept All kinds of Niches Tech, SEO, Health,  Auto, AU sites, Uk blog ,  Gambling, Casino, sex, and many more websites. Please Contact us on paidguestpostingsite@gmail.com  before ordering.
+We accept All kinds of Niches Tech, SEO, Health,  Auto, AU sites, Uk blog ,  Gambling, Casino, Adult, and many more websites. Please Contact us on paidguestpostingsite@gmail.com  before ordering.
 
 ## Will you Provide Article Writing Service? 
 Yes, We will write Unique On-Page SEO Optimized Articles related to your Keyword/Niche and Publish them on our High DA Guest Posting Websites with Dofollow Contextual Backlink. 
